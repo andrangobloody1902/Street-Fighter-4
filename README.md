@@ -239,4 +239,4 @@ Street Fighter 4 is available as a complete free version for Windows. Enjoy all 
 Don't miss out on the chance to experience Street Fighter 4! Download your free copy today and join the fight!
 
 ---
-**Last updated:** 2026-11-09 07:33:00 UTC
+**Last updated:** 2026-11-10 01:50:20 UTC
